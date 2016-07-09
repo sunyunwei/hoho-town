@@ -1,2 +1,0 @@
-# hoho-town
-hoho-town
